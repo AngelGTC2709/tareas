@@ -9,3 +9,15 @@
 ### tiempo de estudio
 1. para las lecciones 2 horas
 1. para matematicas 1 hora
+ 
+## dia del mes de noviembre que se estudio
+1. si
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
